@@ -1,0 +1,1 @@
+# Lenovo_X605_LC
